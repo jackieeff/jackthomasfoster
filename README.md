@@ -1,2 +1,0 @@
-# jackthomasfoster
-my website :)
